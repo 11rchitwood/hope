@@ -2,7 +2,7 @@
 
 ## Adventus
 
-Today is the start of the season of Advent. It's the beginning of the Christian calendar, and the Christmas season, but where did we get the word? The Latin word adventus is the noun for "coming" or "arrival." Literally, it's the noun version of "coming (ventus) to (ad)." We use the word "advent" in secular context as well: "the advent of the printing press" or "the advent of the internet." These inventions no doubt changed the world in large ways, but the Advent season celebrates the greatest invention of all time: Love coming to planet Earth.
+Today is the start of the season of Advent. It's the beginning of the Christian calendar, and the Christmas season, but where did we get the word? The Latin word *adventus* is the noun for "coming" or "arrival." Literally, it's the noun version of "coming (ventus) to (ad)." We use the word "advent" in secular context as well: "the advent of the printing press" or "the advent of the internet." Inventions like these have changed the world in large ways, but the Advent season celebrates the greatest invention of all time: Love coming to planet Earth.
 
 > The Word became flesh and blood,
 >     and moved into the neighborhood.
@@ -49,11 +49,21 @@ This Advent season remember that God didn't come down to Earth to fix us and be 
 
 ## Dum spiro, spero
 
-Inspire. Despair.
+*Dum spiro, spero.* A Latin proverb meaning, "While I breathe, I hope." From *spiro* (I breathe), we get words like inspire (to infuse into the mind). From *spero* (I hope), we get words like despair (the state of being without hope). I've always liked the proverb, but I don't think this is the whole story for believers. As followers of Jesus, we worship the Living God. While He is breathing life into us, we have hope, and he's always breathing life into us. In fact, it's Jesus' death on the cross and ultimate resurrection that is the basis for our hope.
 
-While, I breathe, I hope. But this isn't the whole story for believers. We worship the Living God. While He is breathing life into us, we have hope, and he's always breathing life into us.
+I do, however, love the association of breathing and hoping. The association is captured in the Hebrew word *ruach*, which means "wind," "breath," or "spirit." You can find mention of God's ruach all over the Hebrew bible. It's on page one when “The Spirit of God [Ruach Elohim] was hovering over the waters” (Genesis 1:2). It's a through line all the way into the New Testament when, at Jesus' baptistm, Spirit of God descends and rests upon Him "like a dove" (Matthew 3:16). This was foretold in Isaiah 11:2: 
 
-There's a Hebrew word for this, Ruach.
+> And the Spirit of the Lord shall rest upon him,
+> the Spirit of wisdom and understanding,
+> the Spirit of counsel and might,
+> the Spirit of knowledge and the fear of the Lord.
+
+And praise God, we still sing about this today:
+
+> Breathe on me, Breath of God,
+> fill me with life anew,
+> that I may love the way you love,
+> and do what you would do.
 
 *Living God, thank you for breathing life into us. While you breathe, we will place our hope in you. AMEM.*
 
@@ -61,7 +71,7 @@ There's a Hebrew word for this, Ruach.
 
 Last year, we started a new Men's Bible Study on Wednesday nights. We studied an unlikely subject, an Apple TV+ show called Ted Lasso. On the surface, this is not something you'd expect to study in a church setting, but Jimmy Mummert and I (and turns out many more) saw something deeper there: God's wisdom revealed through a modern, secular story. As Jimmy's friend put it during the peak of the pandemic, "It's a show that we need right now."
 
-The show follows an unlikely hero, an American football coach who has found himself coaching a Premier League soccer team in England. He's a a total fish out of water, but over the course of the season he and the team find redemption in one another. The climax of the season occurs when they are one win aways from avoiding relegation (being demoted to the minor leagues). Coach Ted gathers the team together at half time and gives this speech:
+The show follows an unlikely hero, an American football coach who has found himself coaching a Premier League soccer team in England. He's a total fish out of water, but over the course of the season he and the team find redemption in one another. The climax of the season occurs when they are one win aways from avoiding relegation (being demoted to the minor leagues). Coach Ted gathers the team together at half time and gives this speech:
 
 > So I've been hearing this phrase y'all got over here that I ain't too crazy about. "It's the hope that kills you." Y'all know that? I disagree, you know? I think it's the lack of hope that comes and gets you. See, I believe in hope. I believe in belief. Now, where I'm from, we got a saying too, yeah? A question, actually. "Do you believe in miracles?" Now, I don't need y'all to answer that question for me... but I do want you to answer that question for yourselves. Right now. Do you believe in miracles? And if you do... then I want y'all to circle up with me right now. Come on. Let's go.
 
