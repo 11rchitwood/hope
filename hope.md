@@ -45,7 +45,7 @@ Does this mean you need to remain stoic, pious, perfect in you suffering? Absolu
 
 This Advent season remember that God didn't come down to Earth to fix us and be done with the job. God became a little baby to, among other things, give us Hope. Hope for tomorrow. Hope for today. Hope to keep perfecting us, in each and every way.
 
-*Loving Father, thank you for your gift of Hope. Help us to draw near to you this Christmas season, especially when we are at our lowest. AMEN.*
+*Caring Father, thank you for your gift of Hope. Help us to draw near to you this Christmas season, especially when we are at our lowest. AMEN.*
 
 ## Dum spiro, spero
 
@@ -91,14 +91,24 @@ What does all this have to do with Christmas? It's simple. Biblical hope is not 
 
 That's why I love this scene in Harry Potter. To cast the Patronus spell, Harry says, "Expecto patronum." It's the Latin for "I expect a guardian." When Harry travels back in time, he stands across the lake from his past self saying, "Dad will come. I saw him." After a short while, he realizes he must show up for himself because, paradoxically, he already has.
 
-*Loving Father, we thank you for all the times you have showed up for us in our past. We pray that this Christmas season that you give us the hope, the expectation that you will show up for us in the days to come. AMEN.*
+*Merciful Father, we thank you for all the times you have showed up for us in our past. We pray that this Christmas season you give us the hope, the expectation that you will show up for us in the days to come. AMEN.*
 
 ## Where does your hope lie?
 
-People found hope in Obama. People found hope in Jesus. As I'm writing this in September 2024, we don't know who will be the next president. We do know who is truly sovereign in our lives. Let's pray that our nation's leaders will be good stewards of the country we've ellected them to serve, but more than that let's cling to the hope the Christ gives us.
+As I'm writing this, we're in the middle of the 2024 election season, with no winners decided yet. Honestly, I'm feeling a bit jaded. But when I was asked to write Advent devotions about Hope, I remembered the 2008 election season. Do you remember the Barack Obama "Hope" poster? Street artist Shepard Fairey based the design on a photo taken an AP freelance photographer. The poster showed then-presidential-candidate Obama with his gaze lifted up, stylized in red, white, and blue with a bold block font "HOPE" at the base.
 
-## Hope for the flowers
+This image was everywhere back then, and it clearly resonated with many people. Some folks saw for the first time a presidential candidate that looked like them during the most serious economic downturn since the Great Depression. Looking back, I can't help but think about how many of folks were just like this during Jesus' time. First, I think of the Zealots, a revolutionary group who thought Jesus came to help them overthrow the Roman government. Next, there were the Essenes, who thought they could retreat from society to remain holy and pure. Then, there were the Pharisees, who were sure that strict adherence to the law was the only way forward. Finally, there were the Sadducees, who thought they were above the rest in both holiness and social status. The funny thing is, they all had one thing in common: none of them really understood what Jesus came to do.
 
-Growing up, I benefitted from a lot of Bill Turner's legacy. One special part was Sunday School at St. Luke my senior year in high school. Mr. Turner was no longer teaching, but his proteges, Betsy and Rick Covington were. Upon graduation, they gave us a curious gift, a sort-of children's book called *Hope for the Flowers*.
+Jesus came to change people's hearts, not their politics. With Jesus in your heart, everything changes, not just one dimmension of life. This Christmas, regardless of election outcomes or anything else, I pray that we experience revival in our hearts and that that would lead us to be the body of Christ in our community.
 
-It was a yellow book cartoonishly illustrated with flowers, caterpillars, and the like.
+*Loving Jesus, help us to keep our hope in you, and you alone, this Christmas season. Divert our eyes from the squabbles of politics, and fix us on loving our neighbor as you love us. AMEN.*
+
+## Hope for the Flowers
+
+One of the best gifts I ever received was from my Sunday school teachers in 12th grade. It was a yellow book with a butterfly on it called *Hope for the Flowers* by Trina Paulus. The cover explained that it was a "a tale - partly about life, partly about revolution, and lots about hope - for adults and other including caterpillars who can read". If you can, read it yourself, but I'll try to summarize here.
+
+The story follows a caterpillar named Stripe. He hatches from an egg, eats, and grows, but he has a feeling there must be more to life. One day he discovers a pillar of caterpillars, all climbing over one another, that stretches up to the clouds. They are seeking soem unknown goal. He joins in and along the way meets a friend, Yellow. They fall in love and eventually give up the climb to live together, but the feeling that there is more to life never leaves Stripe. Eventually, he sets back off to the climb, abandoning Yellow. Sad and alone, Yellow discovers another caterpillar forming a cocoon and, though doubtful, decides to do the same. Meanwhile, Stripe is bigger and stronger and makes it to the top of the climb to discover nothing but a clear vantage point with thousands of other caterpillar pillars around. Then, buttefly Yellow visits him. He doesn't understand at first but ultimately she convinces him to become a butterfly too, and they live happily ever after.
+
+There's more depth to the parable than I can convey here, but there's a pivotal moment I want to zoom in on. The first cocoon-building caterpillar tells Yellow that to become a butterfly, "You must want to fly so much that you are willing to give up being a caterpiller." Yellow asks them if this means she has to die. "Yes and No," he says. "Life is changed, not taken away." This is the ultimate hope-building move. Paul says it this way in Galatians 2:20, "I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me."
+
+*Author of Hope, give us the courage to die to ourselves and take up our cross daily and follow you. AMEN.*
