@@ -81,9 +81,17 @@ Answer that question for yourself this advent season. Here's a hint though, "Wit
 
 ## Expecto patronum
 
-I expect a guardian.
+The Harry Potter series is probably the most significant work of fiction for my generation. Many of us waited in line outside Barnes & Noble at each release, and many an Accelerate Redaer point was earned by reading these books. 
 
-Come, though long expected Jesus,
+One of the most pivotal events in the series occurs in the third book.  By a lake in the Forbidden Forest, Harry is with Sirius Black, his newfound godfather, who has been gravely wounded. Sirius is the first true family that the orphan boy has ever known, and it seems like Sirius is about to be lost to him as quickly as he was found. As they huddle together, the lake ices over rapidly, and there descend hundreds of Dementors, ghastly wraithlike beings who devour human happiness. Harry tries to cast the Patronus spell, the only way to defeat a Dementor, but fails. It seems that all hope is lost.
+
+Miraculously, across the lake, a shimmering white stag appears made from pure light. It drives away the Dementors and saves Harry and Sirius. Harry is convinced that his father has returned from the grave to save them. Only later we find out that Harry himself made a small jump back in time and saved himself with a stronger Patronus charm that appeared as his father's white stag.
+
+What does all this have to do with Christmas? It's simple. Biblical hope is not wish fulfillment. Biblical hope is based on trust in God that has been developed over generations of believers. We read the Bible and know the stories of how God has shown up for his people. We experience God's presence in our own lives. We hold hope in our hearts that God will continue His good work going forward.
+
+That's why I love this scene in Harry Potter. To cast the Patronus spell, Harry says, "Expecto patronum." It's the Latin for "I expect a guardian." When Harry travels back in time, he stands across the lake from his past self saying, "Dad will come. I saw him." After a short while, he realizes he must show up for himself because, paradoxically, he already has.
+
+*Loving Father, we thank you for all the times you have showed up for us in our past. We pray that this Christmas season that you give us the hope, the expectation that you will show up for us in the days to come. AMEN.*
 
 ## Where does your hope lie?
 
